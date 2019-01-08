@@ -1,0 +1,1 @@
+mine get 10 point
